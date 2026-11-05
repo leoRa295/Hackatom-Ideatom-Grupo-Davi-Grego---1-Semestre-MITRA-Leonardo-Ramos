@@ -1,1 +1,5 @@
-# Hackatom-Ideatom-Grupo-Davi-Grego---1-Semestre-MITRA-Leonardo-Ramos
+# Hacktom-Ideiatom-1-semestre-
+
+Grupo da Fatec
+
+ 
